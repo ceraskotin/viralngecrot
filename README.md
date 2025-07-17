@@ -1,2 +1,1 @@
-# viralngecrot
-viralngecrot
+# [viralngecrot](https://viralngecrot.pages.dev)
